@@ -1,3 +1,3 @@
-_**What is the one sentence summary of how you change the world? Always work hard on something uncomfortably exciting!**_
+_**Winning isn't everything.. It's the only thing.**_
 
-Larry Page
+Vincent van Gogh
