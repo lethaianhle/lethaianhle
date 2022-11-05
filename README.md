@@ -1,3 +1,3 @@
-_**Let our advance worrying become advance thinking and planning.**_
+_**Stress is like a pulse, if you have it you are alive.**_
 
-Winston Churchill
+Steve Maraboli
