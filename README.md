@@ -1,3 +1,3 @@
-_**It isn't what you have, or who you are, or where you are, or what you are doing that makes you happy or unhappy. It is what you think about.**_
+_**If I work as hard as I can, I wonder how much I can do in a day?**_
 
-Dale Carnegie
+Ezra Taft Benson
