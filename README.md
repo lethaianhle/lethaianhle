@@ -1,3 +1,3 @@
-_**Luck is a dividend of sweat. The more you sweat, the luckier you get**_
+_**Vision without action is daydream. Action without vision is nightmare..**_
 
-Ray Kroc
+Japanese Proverb
